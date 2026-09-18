@@ -3,7 +3,7 @@
 
 **Author:** Angel Alejandro Pérez Plaza  
 **Title:** Chief Systems Architect, Aetherlink Services  
-**Contact:** `angelalejandroprz@protonmail.com`
+**Contact:** `angelalejandroprz@proton.me`
 
 ---
 
